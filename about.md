@@ -4,12 +4,12 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+Aici poți găsi toate paginile mele de jurnal
 
-### More Information
+### De ce am făcut asta?
 
-A place to include any other types of information that you'd like to include about yourself.
+Fiindcă sunt un fulg de nea unic 
 
-### Contact me
+### Ești o gagică sexy care vrea să mă sune?
 
-[email@domain.com](mailto:email@domain.com)
++4078395567
