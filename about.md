@@ -13,3 +13,6 @@ Fiindcă sunt un fulg de nea unic
 ### Ești o gagică sexy care vrea să mă sune?
 
 +40 768 938 848
+
+![Victoria](https://ibb.co/bMCnyCy8)
+
