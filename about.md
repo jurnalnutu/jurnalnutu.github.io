@@ -14,5 +14,6 @@ Fiindcă sunt un fulg de nea unic
 
 +40 768 938 848
 
-![Victoria](https://i.ibb.co/ZpFCwFwk/65668.jpg)
+![Nuțu](https://i.ibb.co/v4BsPQ7Q/37609.jpg)
+Eu când nu mă suni :(
 
