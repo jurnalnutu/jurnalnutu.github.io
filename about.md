@@ -16,4 +16,6 @@ Fiindcă sunt un fulg de nea unic
 
 ![NuțuSiMaya](https://i.ibb.co/5hwb6RNv/71788.jpg)
 
+Cum să n-o iubești? 😍
+
 
