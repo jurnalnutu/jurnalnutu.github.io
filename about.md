@@ -15,7 +15,6 @@ Fiindcă sunt un fulg de nea unic
 +40 768 938 848
 
 ![NuțuSiMaya](https://i.ibb.co/5hwb6RNv/71788.jpg)
-
 Cum să n-o iubești? 😍
 
 
